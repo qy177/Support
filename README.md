@@ -6,14 +6,18 @@
 
 邮箱：heqinying177@gmail.com
 
+电话:+817035358883
+
 If you have any problems while using our products, please feel free to contact us and we will do our best to solve them for you!
 
 Please contact us by email and we will be at your service 24 hours a day!
 
 Email: heqinying177@gmail.com
 
+TEL:+817035358883
+
 APPを使用しているときに問題が発生した場合、使用方法についての質問など、お気軽にお問い合わせください。
 
-サポートはE-mailでのみ承っております。
-
 Email: heqinying177@gmail.com
+
+TEL:+817035358883
